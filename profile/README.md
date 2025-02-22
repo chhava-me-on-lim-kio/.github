@@ -1,6 +1,6 @@
 # Chhava 2025 “𝐌𝐨vi𝐞” 𝐃𝐨wn𝐥𝐨ad 𝐅𝐢𝐥m𝐲𝐰ap 𝐅ilm𝐲zil𝐥𝐚 Mp𝟒𝐦ov𝐢ez 𝐊ut𝐭𝐲mo𝐯𝐢e 𝐕ega𝐦ov𝐢𝐞s 𝐇in𝐝i 𝐃u𝐛be𝐝 
 
-Historical films have the power to revive the past, and *Chhava* is one such film that beautifully brings the legacy of Maratha warrior king, Chhatrapati Shivaji Maharaj, to the silver screen. This Marathi movie is a tribute to the indomitable spirit of one of India’s greatest leaders.
+Historical films have the power to revive the past, and *Chhava* is one such film that beautifully brings the legacy of Maratha warrior king, Chhatrapati Shivaji Maharaj, to the silver screen. This Marathi movie is a tribute to the indomitable spirit of one of India’s greatest leaders
 
 <h3><a href="https://movieslink.short.gy/Chhaava">➤ ►🌍📺📱👉 Chhava 𝙈𝙤𝙫𝙞𝙚 𝘿𝙤𝙬𝙣𝙡𝙖𝙤𝙙</a></h3>
 
